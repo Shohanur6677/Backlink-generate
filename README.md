@@ -1,7 +1,7 @@
 How Guest Posting Helps In Website Ranking?
 Kicking it off with guest posts is a top-notch move for getting your website to climb the ranks in search engine listings. When you drop some stellar articles on well-known sites that get your niche, it's more than just getting your name out there. It pumps up the strength of your website's rep, pulls in more clicks, and racks up those sweet sweet links. We're digging into how tossing up guest posts can make your site a big deal, plus some smart moves to make it work.
 
-[Discover key ranking factors here](https://digitalmarketinginno.com)
+[Discover key backlink factors here](https://digitalmarketinginno.com)
 
 1. Scoring Top-Tier Links
 Google ranks sites higher when they've got backlinks. By writing guest posts, you snag do-follow backlinks from sites with mega Domain Authority (DA) and Page Authority (PA). If a big-deal website throws a link your way, search engines get the hint that you're dishing out top-notch stuff so go up your rankings.
